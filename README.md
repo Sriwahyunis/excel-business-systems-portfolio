@@ -98,5 +98,5 @@ These projects were created to strengthen my Microsoft Excel skills and demonstr
 
 LinkedIn: Sri Wahyuni
 
-Email: *(Add your professional email)*
+Email: Sriwahyuni0513@gmail.com
 
